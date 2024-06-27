@@ -3,6 +3,5 @@ mostly at spawn or my island (safe server). not a conversation starter, i'm pret
 "hey goofball, look who's all neutered!"
 ![image](https://github.com/SK1NLESS/SK1NLESS/assets/129009205/1a7288b3-9e37-4ebd-99d1-e616ca0fac65)
 ![image](https://github.com/SK1NLESS/SK1NLESS/assets/129009205/aedf39fc-d713-4f25-80eb-3e7ffd478e5c)
-![image](https://github.com/SK1NLESS/SK1NLESS/assets/129009205/0f1619e4-c6b0-4a0d-be91-e87ca85437e5)
 
-
+![image](https://github.com/SK1NLESS/SK1NLESS/assets/129009205/b8812340-2088-420f-8fb2-f144799ea44c)
