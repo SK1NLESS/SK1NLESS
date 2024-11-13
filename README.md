@@ -1,5 +1,6 @@
-not much of a convo starter so pls whisper me if u wanna talk or compliment my skin ^_^ kinda shy at first but i'll get comfortable eventually. usually at spawn, crk area, reg area or party island. 
-![0fb023dc141b03a9aa261845e595701f (2)](https://github.com/user-attachments/assets/93d81d40-118c-454f-bd13-d76d8f24201f)
+i don't talk much unless someone whispers me (which is my prefered way of exchanging covos with people). usually around spawn, crk area, reg area or party island. i tend to be pretty awkward and shy s̠o̠m̠e̠t̠i̠m̠e̠s̠ so im sorry about that ^_^
+
+https://github.com/user-attachments/assets/edd11dfc-3d97-4eb6-baea-b1484f68fe1a
 
 
 
